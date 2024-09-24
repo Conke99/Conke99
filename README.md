@@ -7,13 +7,18 @@ Web developer at Future Forward
 
 Castit
 [https://castitsignage.com](https://castitsignage.com/)
+
 Future Forward
 [https://futureforward.nl](https://futureforward.nl/)
+
 Digital Reception
 [https://digitalreception.app](https://digitalreception.app/)
+
 Digitale Receptie
 [https://digitalereceptie.app](https://digitalereceptie.app/)
+
 and GuideLites
 [https://guidelites.com](https://guidelites.com/)
+
 We do touchscreen solutions for everyone. Check it out on Touchscreen
 [https://touchscreen.nl](https://touchscreen.nl/)
